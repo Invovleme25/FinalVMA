@@ -1,0 +1,1 @@
+Keďže som veľký fanúšik šípiek, tak posielam jednoduchú mobilnú appku na počítanie skôre pri klasickej hre 501, s tým, že končiť sa musí doublom. Tak isto sú tam v zopár prípadoch aj ukázané vhodné kombinácie zavretia. 
